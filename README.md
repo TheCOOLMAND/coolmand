@@ -1,2 +1,9 @@
 # coolmand
-idk how to code im just following a tutorial for this
+no idea how to code im just following a tutorial for this
+<img width="665" height="650" alt="image" src="https://github.com/user-attachments/assets/2efd90b2-a715-4695-9256-c5b347b0209a" />
+
+but here's the spot im at 90% of the time (idk why the void is corrupting this img ignore that)
+
+i am very friendly. you can say hi but i might not respond if i have the in menu icon above my name
+
+C+H always & feel free to come to me for advice on anything 👋
