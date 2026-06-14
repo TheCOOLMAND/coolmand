@@ -9,3 +9,5 @@ but here's the spot im at 90% of the time
 i am very friendly. you can say hi but i might not respond if i have the in menu icon above my name
 
 C+H always 👋
+
+also the img is outdated my skinnhas been upgraded as of now
